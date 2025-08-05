@@ -1,2 +1,2 @@
-# CYRGE
+# CYRAGΞ™
 BRAND BANNER
