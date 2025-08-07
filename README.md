@@ -3,7 +3,7 @@
 ### >>IN CODE WE TRUST<<
 ### CYRAGΞ | RedShift Ops**
 
-### **:: IN CODE WE TRUST ::
+### :: IN CODE WE TRUST ::
 ### > 1337 born, 0wn3d by none <
 ### $ Exploit the machine. Free the mind. $**
 
