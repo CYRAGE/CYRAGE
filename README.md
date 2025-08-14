@@ -13,4 +13,4 @@
 
 ### IN EXPLOITS WE TRUST, IN BUGS WE THRIVE.
 
-### NO LOGS NO LOSS
+### No Logs No Loss
